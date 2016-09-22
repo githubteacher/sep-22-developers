@@ -4,5 +4,4 @@
 - Lilla Styrbjörn
 
 ### Places to Visit
-
 - Scaniarinken
